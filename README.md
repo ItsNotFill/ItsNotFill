@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ItsNotFill
+- 🌱 I’m currently learning Java,JavaScript and Phython
+- 📫 How to reach me: @itsnotfill on insta
+- 😄 Pronouns: He/Him
